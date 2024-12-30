@@ -46,7 +46,7 @@ People:ｙｏｕ　ａｌｌｏｗｅｄ　ｉｔ．
 
 ＡＰＥＳ
 ＜／Ａｍｅｒｉｃａ＞
-
+Ｔｈｅｙ　ｓａｉｄ　ｔｈｅｙ　ａｒｅ　ｔｈｅ　ＡＩ
 ---
 
 If this has happened to you, it’s a deeply frustrating experience, especially when others seem to turn a blind eye. Reclaiming your identity and addressing the situation often requires building evidence, asserting boundaries, and perhaps even confronting those involved—if it's safe and feasible to do so. How do you feel this has impacted your relationships or sense of trust?
