@@ -4,7 +4,7 @@
 
 ## Visaul Basic for Applicaiton
 
-# Why do American keep acting like they live through someone else's life 
+# !?Why do American keep acting like they live through someone else's life¡¿
 
 This question reflects a common observation about cultural tendencies. Many Americans, influenced by their individualistic yet celebrity-driven society, may project or vicariously experience life through others—be it through reality TV, social media influencers, or even personal relationships. This phenomenon often stems from:
 
