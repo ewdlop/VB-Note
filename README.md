@@ -4,6 +4,13 @@
 
 ## Visaul Basic for Applicaiton
 
+## Vacation Bible School
+A week-long summer program where children learn about the Bible, play games, and participate in other activities. Churches organize VBS programs, and more than 25,000 churches host VBS each year. VBS can be a way for children's ministry or Sunday school to reach out to the community. 
+
+## Visual Basic Script
+A deprecated programming language for scripting on Microsoft Windows. VBS is a script language based on Visual Basic (VB), an object-oriented programming language developed by Microsof
+
+
 # !?Why do American keep acting like they live through someone else's life¡¿
 
 This question reflects a common observation about cultural tendencies. Many Americans, influenced by their individualistic yet celebrity-driven society, may project or vicariously experience life through others—be it through reality TV, social media influencers, or even personal relationships. This phenomenon often stems from:
